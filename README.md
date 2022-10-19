@@ -1,3 +1,5 @@
+**Cette page ou cette section contient des propos humoristiques qui ne prétendent pas avoir une valeur encyclopédique, ni respecter la neutralité du point de vue !**
+
 # La gerbille tueuse
 La gerbille tueuse est une créature maléfique.  
 C’est une créature non naturelle de catégorie 2 en termes de dangerosité.  
