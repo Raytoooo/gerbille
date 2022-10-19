@@ -17,7 +17,7 @@ _Gerbille tueuse aux yeux rouges_
 
 La gerbille est née d’une expérience scientifique très controversé, un scientifique Comorien du nom de Jules, après avoir découvert la relativité quantique général de la grippe théorique, s’est donné comme mission de trouver un remède contre la grippe théorique et à donc créée une petite espèce, qui à force de développement à grandi, il l’a nommé “GrouGrou”, c’est un nom temporaire car il l’a renommé Gerbille Tueuse une fois qu’il découvrira ses réels capacité, pour mener à bien ses expérience, il décide donc de créer une autre pour les accoupler, une femelle; 1 semaine après, les deux s’accouplent, mais ce qu’il ne savait pas c’est qu’ils s’accouplent très vite, et quelques jours après, d’autres gerbilles naissent, en grandes quantités, le scientifique ne s’attendait pas à autant de naissance aussi rapide. Quelques mois plus tard, les gerbilles s’enfuient du laboratoire du scientifique.
 
-![cover-r4x3w1200-5e81c19c3d04b-049-f0247657.jpg](https://www.sciencesetavenir.fr/assets/img/2020/03/30/cover-r4x3w1200-5e81c19c3d04b-049-f0247657.jpg =250x250)  
+![cover-r4x3w1200-5e81c19c3d04b-049-f0247657.jpg = 250x250](https://www.sciencesetavenir.fr/assets/img/2020/03/30/cover-r4x3w1200-5e81c19c3d04b-049-f0247657.jpg)  
 _Foetus de gerbille_
 
 # Le danger
