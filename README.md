@@ -3,10 +3,10 @@ La gerbille tueuse est une créature maléfique.
 C’est une créature non naturelle de catégorie 2 en termes de dangerosité.  
 Malgré leur apparence assez mignonne, ces créatures renferment une vraie dangerosité, elles sont maléfiques et ne résisteront pas à vous faire du mal si elles le souhaitent.  
 Elles ont une apparence de [rats](https://fr.wikipedia.org/wiki/Rat), elles sont douces, très gentille en apparence, elles sentent les épices, très précisément le [curcuma](https://fr.wikipedia.org/wiki/Curcuma), une épice très connu, elles sentent cette odeur car, elle rejette les odeurs des aliments qu’elle mangent, les gerbilles étant des amoureuse du [curcuma](https://fr.wikipedia.org/wiki/Curcuma) et de toute épice avec une odeur forte.
+
 ![petition-img-26805-fr.jpeg](https://www.mesopinions.com/public/img/petition/petition-img-26805-fr.jpeg)  
 _Gerbille mignone_  
 _![300px-Gerbille-001.jpg](https://upload.wikimedia.org/wikipedia/commons/thumb/f/fa/Gerbille-001.jpg/300px-Gerbille-001.jpg)
-
 _Gerbille tueuse aux yeux rouges_
 
 # Origine
